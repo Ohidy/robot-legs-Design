@@ -7,4 +7,5 @@ but over all thats how i wanted it to be as a final product it looks like a lego
 ![image](https://github.com/user-attachments/assets/680d7a0c-92f7-45de-a902-c276e4c08d48)
 ![image](https://github.com/user-attachments/assets/3edd70a7-c400-4a43-a250-87cc2c8fa5e7)
 ![image](https://github.com/user-attachments/assets/c30ac86a-703f-4756-8e40-50393a93dd54)
+![image](https://github.com/user-attachments/assets/04357f0a-353d-4093-b0f0-a649953e6299)
 
